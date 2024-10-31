@@ -1,0 +1,1 @@
+# test_task_for_the_vacancy_of_a_QA_tester_trainee
